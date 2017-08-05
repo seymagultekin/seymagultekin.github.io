@@ -1,0 +1,2 @@
+# seymagultekin.github.io
+kişiselsite
